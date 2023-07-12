@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @dongzhehan
 - 👀 I’m interested in: play game
 - 🌱 I’m currently learning: go to Beijing
-- 💞️ love brawlstars and pink ink
+- 💞️ I love brawlstars and pink ink
 - 📫 https://space.bilibili.com/2063667724?spm_id_from=333.788.0.0
 
 <!---
